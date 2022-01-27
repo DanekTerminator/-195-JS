@@ -1,1 +1,1 @@
-https://julia-zhirnova.github.io/iphone13/
+https://danekterminator.github.io/-195-JS/
